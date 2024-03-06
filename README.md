@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JackieCatherine
-- 👀 I’m interested in coding PHP, HTML, CSS, Javascript, video games, guitars and food :D
+- 👀 I’m interested in coding PHP, HTML, CSS, Javascript, plushies, pink stuff, video games, guitars and food :D
 - 📫 How to reach me: please dont reach out to me ^_^ it´s not necessary
 - 😄 Pronouns: she / her
 
